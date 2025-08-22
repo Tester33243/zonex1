@@ -4,8 +4,7 @@ Hi👋, I’m eestionparim103 (or eest), Roblox scripter with more than 5 years 
 - shop and Money systems 
 - step counter, nuke systems
 - Basically anything you wish
-💸Price:
-Depends on the request, simpler jobs start at 2k robux ( I also accept USD/euro)
+- 💸Price: Depends on the request, simpler jobs start at 2k robux ( I also accept USD/euro)
 
 ## Youtube channnel 👇
 https://youtube.com/@scripter1122?si=KXD1nGHx22BB1epi  
